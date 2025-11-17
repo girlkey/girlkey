@@ -4,7 +4,7 @@
  <br>
  
 <b>michael</b> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; or &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; mikey<br>
-   <a href="https://pronouns.cc/@partypoisoned/">he<i>him</i></a> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <b>fifteen</b>
+   <a href="https://pronouns.cc/@partypoisoned/">he<i>him</i></a> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![https://sewerwolfx.neocities.org/graphics/pixels/crosses/4.gif](https://github.com/partypoisoned/partypoisoned/blob/main/4.png?raw=true) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <b>fifteen</b>
 
  
  <a href="https://rentry.co/glitterybass">rentry</a> : <a href="https://mychemicalromance.atabook.org/">ata</a>
